@@ -1,1 +1,0 @@
-# beatricecxx.github.io
